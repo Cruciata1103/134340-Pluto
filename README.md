@@ -25,3 +25,10 @@ For ayako not just for shimizu.
        0绫0：你在说你妈呢。   （12:59）
        ![image](https://github.com/Cruciata1103/134340-Pluto/blob/main/pic/00041-2683059790-A.jpg)
        
+       
+       莎士比亚 十四行诗第七十六首
+       For as the sun is daily new and old,
+       So is my love still telling what is told. 2023.3.11
+       0绫0：重复的话淹没在了数百楼层里 像是喋喋不休的 我对莲的。在扎了兴奋剂的城市 我写下了这首阴雨天的诗。我的世界没有莲 我想让他在诗句里永久重现 于是我的梦也变得疯狂 千百 
+       只乌鸦的骸骨睡在我的床边 一个夜晚能去的所有地方都是我的土地 苦难的风里 枝芽拼命的逃离 而我锈迹斑斑的床头 永远放着莲留下的白玉兰。以上 都是谎言
+       （呵呵 天才程序员美少女 掌握了基础格式
