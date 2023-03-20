@@ -23,8 +23,8 @@ For ayako not just for shimizu.
        我是海鸥：如果想要被爱不被允许，那么去爱也是一种激情犯罪！  （12:58）
        
        0绫0：你在说你妈呢。   （12:59）
-       ![image](https://github.com/Cruciata1103/134340-Pluto/blob/main/pic/00041-2683059790-A.jpg)
-       
+       ![image](https://github.com/Cruciata1103/134340-Pluto/blob/main/pic/00041-2683059790-A.jpg)  
+       ————————————————————————————————————————————————————————————————————————————————————————————————————————————————————————————————————————————————————————
        
        莎士比亚 十四行诗第七十六首
        For as the sun is daily new and old,
